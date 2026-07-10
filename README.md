@@ -1,1 +1,0 @@
-# Examen-parcial-fundamentos-programacion
